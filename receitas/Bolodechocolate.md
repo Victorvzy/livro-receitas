@@ -1,4 +1,4 @@
-## Receita de bolo de chocolate :cake:
+## Bolo de chocolate :cake:
 
 ### Ingredientes
 
